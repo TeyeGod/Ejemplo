@@ -1,2 +1,2 @@
 # Documento: <Primera Prueba>
-# THOMAS TEYE PARTEY GOD
+# THOMAS TEYE PARTEY GOD DIOS
